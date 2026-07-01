@@ -1,5 +1,5 @@
 
-Heyo I'm morning, but I really go by any and every other name, especially those of my favorite characters/characters I base my githubs off of
+------------Heyo I'm morning, but I really go by any and every other name, especially those of my favorite characters/characters I base my githubs off of----------
 
 I am genderfluid but I ONLY go by he/him
 
