@@ -1,1 +1,1 @@
-<img width="100" height="100" alt="image" src="https://media.discordapp.net/attachments/1421545586594676846/1521750581260058684/96px-Shame_of_the_Family_Panic.webp?ex=6a45f82b&is=6a44a6ab&hm=0d5dc22482d83f9e1fa77bb7330531bc37972798acac6d4471c16e5438d79482&=&format=webp&width=192&height=192" />
+<img width="96" height="96" alt="image" src="https://github.com/user-attachments/assets/3399ed44-fa7c-4f76-927d-b7ea0dadbc8a" />
