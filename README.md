@@ -11,7 +11,7 @@
 
                                                     Talk to me about my interests please!
 
-
+                                                       SEND ME STUFF ON MY STRAWPAGE
 
                                                            Basic dni (T.R.A.S.H) 
 
