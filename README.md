@@ -22,7 +22,10 @@
 <img width="480" height="260" alt="image" src="https://github.com/user-attachments/assets/6f6997a0-2355-4ba8-8c56-53ccf98ce9b2" />
 
 
-
+                                                             Socials
+                                                https://artfight.net/~MorningRed  
+                                                     Morningred on discord
+                                                    Timolimobrimo on Twitter
 @hohencliff on tumblr for the stamp
 
 
