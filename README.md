@@ -24,3 +24,6 @@
 
 
 @hohencliff on tumblr for the stamp
+
+<p align="center"> 
+![](https://komarev.com/ghpvc/?username=ThumbNursefather)
