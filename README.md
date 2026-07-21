@@ -3,8 +3,8 @@
 
 
 
-                                             Heyo I'm morning, but I really go by any and every other name,
-                                   especially those of my favorite characters/characters I base my githubs off of
+                   Heyo I'm morning, They mostly change based on the github I'm using, but you can ALWAYS call me morning!
+                                  When I'm using this github, I mostly go by Morning!!! or Trevor/Valencina/
 
                                                    I am genderfluid but I ONLY go by he/him
 
