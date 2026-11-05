@@ -19,7 +19,7 @@
  <img width="600" height="150" src="https://64.media.tumblr.com/7def2a6a7155c773d2228d9fccbea4f0/cb3ba3c20dfaa998-aa/s2048x3072/d474631f75227a337f4391ddd372e6e70398c826.pnj" />
 
 <p align="center"> 
-<img width="480" height="260" src="<img width="540" height="300" alt="image" src="https://github.com/user-attachments/assets/f3fae6fe-89a9-4e1c-a7f6-a3d663d702ad" />"
+< src="https://i.pinimg.com/originals/39/4f/b6/394fb6a9c48dce545d97782d3a7c2116.gif"/>
 
 
                                                              Socials
