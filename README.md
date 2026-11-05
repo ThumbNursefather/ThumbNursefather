@@ -19,7 +19,8 @@
  <img width="600" height="150" src="https://64.media.tumblr.com/7def2a6a7155c773d2228d9fccbea4f0/cb3ba3c20dfaa998-aa/s2048x3072/d474631f75227a337f4391ddd372e6e70398c826.pnj" />
 
 <p align="center"> 
-< src="https://i.pinimg.com/originals/39/4f/b6/394fb6a9c48dce545d97782d3a7c2116.gif"/>
+ <img src="https://i.pinimg.com/originals/39/4f/b6/394fb6a9c48dce545d97782d3a7c2116.gif"/>
+
 
 
                                                              Socials
